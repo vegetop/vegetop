@@ -1,6 +1,6 @@
-hi im zeno the mitght even tho im vegetop
-im still donig something pls wait
-lets do this
+hi im zeno the mitght even tho im vegetop im
+currently still donig something pls wait for a sec
+then well do this if you want ot do it later
 you can try to reach me
 
 <!---
